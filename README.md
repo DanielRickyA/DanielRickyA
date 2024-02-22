@@ -3,7 +3,6 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=danielrickya&label=Profile%20views&color=0e75b6&style=flat" alt="danielrickya" /> </p>
 
-<img scr="https://i.gifer.com/Td9n.gif" alt="pikachu" width="400" align="right">
 
 - 🔭 I’m currently working on **campus project**
 
