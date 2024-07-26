@@ -1,5 +1,1 @@
-
-![marcille-stomps-little-tantrum-moment](https://github.com/DanielRickyA/DanielRickyA/assets/111850880/cf4437fc-44a4-4e1d-a083-894ea701422b)
-<!-- ![tumblr_f64c9ae37fde0ae7106a2c1e40922096_0fa329fb_540](https://github.com/DanielRickyA/DanielRickyA/assets/111850880/6ad1114e-01cf-42b5-a731-3f23f54920b6) -->
-<p align="left"> Capek Ngoding </p>
-
+![tumblr_71280cc0a3197ab5b5820a0d85424a2e_ba0b66bd_1280](https://github.com/user-attachments/assets/223d7ddf-b1ad-41c1-8cfc-397752afe527)
